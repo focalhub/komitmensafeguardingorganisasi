@@ -1,0 +1,2 @@
+# komitmensafeguardingorganisasi
+Perlindungan untuk semua
